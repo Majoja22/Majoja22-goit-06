@@ -1,0 +1,1 @@
+# Majoja22-goit-06
